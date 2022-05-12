@@ -38,5 +38,5 @@ Best Tool For Increase Instagram Follower.
     <img src="https://github.com/th3unkn0n/extra/blob/master/.img/yt.png" width="40" height="40">
   </a>
   <a href="https://www.instagram.com/adwin_15/">
-    <img src="https://github.com/th3unkn0n/extra/blob/master/.img/ig.png" width="40" height="40">
+    <img src="https://te.legra.ph/file/bd57ee9eb4b7fec5a3b12.jpg" width="40" height="40">
 </p>
